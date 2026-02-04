@@ -6,7 +6,7 @@ All glory to Jesus Christ — the Word of God!
 Perfect for Remnant Kids, Grown Kids, Adults & all who love God's Word!
 
 **Watch on YouTube**  
-[[Playlist link when live](https://www.youtube.com/watch?v=e5fd91d7Dtc&list=PL-xY0EPCP8skyy2-vcv5aBUYSvAj5Im6K)]
+[](https://www.youtube.com/watch?v=e5fd91d7Dtc&list=PL-xY0EPCP8skyy2-vcv5aBUYSvAj5Im6K)]
 
 **Downloads**  
 - Shorts MP4s in /Shorts/ folder  
