@@ -9,8 +9,8 @@ Perfect for Remnant Kids, Grown Kids, Adults & all who love God's Word!
 [(https://www.youtube.com/watch?v=e5fd91d7Dtc&list=PL-xY0EPCP8skyy2-vcv5aBUYSvAj5Im6K)]
 
 **Downloads**  
-- Shorts MP4s in [BibleQuiz_30_Shorts_FunAndLearning/Shorts/
-- Cover -
+- Shorts MP4s in [BibleQuiz_30_Shorts_FunAndLearning/Shorts
+- Cover - BibleQuiz_30_Shorts_FunAndLearning_Cover.jpg.jpg
 - Worksheets PDF - BibleQuiz_1-30_Master_Worksheets_Colorful_Remnant.pdf
 
 Let the Word dwell richly! (Colossians 3:16)
